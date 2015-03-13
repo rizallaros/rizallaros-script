@@ -1,0 +1,1 @@
+Ini masih perdana banget
